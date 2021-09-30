@@ -24,6 +24,8 @@ There are also local places where you can shop! Many commercial malls have store
   * [Erasable Pens](https://www.amazon.com/gp/slredirect/picassoRedirect.html/ref=pa_sp_atf_office-products_sr_pg1_1?ie=UTF8&adId=A0696358PZVQMBE6KP92&url=%2FPilot-Retractable-Erasable-Assorted-Disappear%2Fdp%2FB009QYH644%2Fref%3Dsr_1_1_sspa%3Fdchild%3D1%26keywords%3Dpilot%2Bfrixion%26qid%3D1632930121%26s%3Doffice-products%26sr%3D1-1-spons%26psc%3D1&qualifier=1632930121&id=6699221828929218&widgetName=sp_atf)
     * These pens are erasable and great for writing and completing assignments in pen, but need to be erased! Also great for annotations of books!
 
+![IMG-8664 (1)](https://user-images.githubusercontent.com/91553756/135485338-4ede6fdf-99d1-4508-a13d-493d1dd679b1.jpg)
+
 #### Accessories
   * [Eraser](https://www.google.com/aclk?sa=L&ai=DChcSEwic4fznx6LzAhXYH60GHRpVCP0YABAFGgJwdg&sig=AOD64_3pgKXrbz5XHd7sLK-MuTiTy-yiXg&ctype=5&q=&ved=0ahUKEwiA3_bnx6LzAhVLqJ4KHamuCB4Qww8IiQc&adurl=)
     * This eraser gets the job done.
@@ -38,6 +40,4 @@ There are also local places where you can shop! Many commercial malls have store
   * [Binders](https://www.amazon.com/Avery-Durable-Binder-Slant-17002/dp/B09HDRM7H6?th=1)
     * These binders are actually able to fit inside your backpack!
 
-![My Stationery](https://images-na.ssl-images-amazon.com/images/I/61tQmxS-OTL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-![My Stationery](https://m.media-amazon.com/images/I/51-wScTB1yL._AC_SL1000_.jpg)
+![IMG-8676](https://user-images.githubusercontent.com/91553756/135485345-80d63a19-e10b-41be-9374-8a54e0ef6dc4.jpg)
