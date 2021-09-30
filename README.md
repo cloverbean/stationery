@@ -41,4 +41,3 @@ There are also local places where you can shop! Many commercial malls have store
 ![My Stationery](https://images-na.ssl-images-amazon.com/images/I/61tQmxS-OTL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
 
 ![My Stationery](https://m.media-amazon.com/images/I/51-wScTB1yL._AC_SL1000_.jpg)
-
