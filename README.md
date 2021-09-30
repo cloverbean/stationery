@@ -39,5 +39,7 @@ There are also local places where you can shop! Many commercial malls have store
     * This notebook is great for those classess you end up with half filled composition books! They also lie down flat!
   * [Binders](https://www.amazon.com/Avery-Durable-Binder-Slant-17002/dp/B09HDRM7H6?th=1)
     * These binders are actually able to fit inside your backpack!
+  * [Scientific Calculator](https://www.amazon.com/Texas-Instruments-MultiView-Scientific-Calculator/dp/B000PDFQ6K/ref=sr_1_16?dchild=1&keywords=scientific+calculators+ti+blue&qid=1633016193&sr=8-16)
+  * [Graphing Calculator](https://www.amazon.com/Texas-Instruments-TI-84-Graphing-Calculator/dp/B01K5LC434/ref=sr_1_3?dchild=1&keywords=scientific+calculators+ti84+plus+ce+white&qid=1633016259&sr=8-3)
 
 ![IMG-8676](https://user-images.githubusercontent.com/91553756/135485345-80d63a19-e10b-41be-9374-8a54e0ef6dc4.jpg)
